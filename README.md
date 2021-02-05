@@ -1,2 +1,2 @@
-# Aryan-Heril-brain-juice-
-Website by heril and aryan
+# Aryan-brain-juice-
+Website by aryan
